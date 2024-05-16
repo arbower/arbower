@@ -5,6 +5,4 @@
 - ⚾ 🏈 Lifelong baseball and football fan
 
 Currently, I am a Senior Quantitative Researcher at Electronic Arts, ex-Meta
-PhD. from UC Davis
-
--->
+- PhD. from UC Davis
